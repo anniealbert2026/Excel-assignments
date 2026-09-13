@@ -1,2 +1,2 @@
-https://docs.google.com/spreadsheets/d/1lysLRHZrvQx5OkGme5jCSFhrIOX5JVVW/edit?gid=1627798268#gid=1627798268
-https://docs.google.com/document/d/1kx6w_GKXtSZEO4oM1rH53wNBlSxI5ef1/edit
+https://drive.google.com/file/d/1V7vQuZaPMMsHyCFocq4qHnANE4j2FOuU/view?usp=drive_link
+https://docs.google.com/spreadsheets/d/1CG7nFlfr4yajIUpUDpqqKdVlyrF7x-8u/edit?usp=drive_link&ouid=118092417003313312863&rtpof=true&sd=true
